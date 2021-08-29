@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JYe16
+- 👀 USC Class of 2021.
+- 👀 TCU Class of 2020.
+- Fight On! Lead On! Go Horned Frogs! Go Trojans!
